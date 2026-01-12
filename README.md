@@ -13,3 +13,5 @@
 that's all.
 # || --- ★ --- ||
 ACTIVENESS / MOOD ;; 100%
+# ! × --- × !
+DNI LIST ;; proshippers, darkshippers, the basic stuff.
