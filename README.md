@@ -8,6 +8,8 @@
 @ You can int freely, i don't mind! ^_^
 
 @ Mostly online 24/7, yeah. I'm a phone addict 💥
+
+@ Go follow my awesome wife! ^_^ @Literally-Valentino
 # « ----- »
 ~ EXTRA INFO: i listen to vocaloid, yh.. 
 that's all hh..
