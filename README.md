@@ -18,8 +18,10 @@ FANDOMS !! ;;
 - DIE OF DEATH
 - BAD THINGS
 - BLOCKTALES
+- LET HIM GO
+- PHIGHTING!
 - AND MORE THAT I CAN LIST SOON !! [ i forgot hhh ]
 # || --- ★ --- ||
-ACTIVENESS / MOOD ;; 100%
+ACTIVENESS / MOOD ;; 95%
 # ! × --- × !
 DNI LIST ;; proshippers, darkshippers, the basic stuff
