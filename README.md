@@ -9,7 +9,7 @@
 
 @ Mostly online 24/7, yeah. I'm a phone addict 💥
 
-@ Go follow my awesome wife! ^_^ @h4xx1ng
+@ Go follow my awesome husband! ^_^ @h4xx1ng
 
 @ PLEASE DON'T CALL ME KATIE. THEY REMIND ME OF MY EX FRIEND. please...
 
@@ -23,6 +23,7 @@ FANDOMS !! ;;
 - LET HIM GO
 - PHIGHTING!
 - TERMINATION PROTOCOL 
+- BFDI
 - AND MORE THAT I CAN LIST SOON !! [ i forgot hhh ]
 # || --- ★ --- ||
 ACTIVENESS / MOOD ;; 100%
