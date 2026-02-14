@@ -26,7 +26,7 @@ FANDOMS !! ;;
 - BFDI
 - AND MORE THAT I CAN LIST SOON !! [ i forgot hhh ]
 # || --- ★ --- ||
-ACTIVENESS / MOOD ;; 100%
+!! THIS IS A FILLER !!
 # ! × - ⊹ - × !
 DNI LIST ;; proshippers, darkshippers, the basic stuff
 # ▶ ---- ✧ ---- 
