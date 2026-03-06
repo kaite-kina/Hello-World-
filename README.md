@@ -1,4 +1,4 @@
-# Hello-World-
+# Hello-World
 `` READ ME !!
 
 @ My name is Kaitekina, or Kaite, or Char. I don't mind anyway. 
@@ -24,6 +24,7 @@ FANDOMS !! ;;
 - PHIGHTING!
 - TERMINATION PROTOCOL 
 - BFDI
+- GRACE
 - AND MORE THAT I CAN LIST SOON !! [ i forgot hhh ]
 # || --- ★ --- ||
 !! THIS IS A FILLER !!
@@ -31,4 +32,5 @@ FANDOMS !! ;;
 DNI LIST ;; proshippers, darkshippers, the basic stuff
 # ▶ ---- ✧ ---- 
 FAVOURITE CHARACTERS !! ;;
-Sword [ PHIGHTING! ], Noob [ ANY FANDOM or FORSAKEN ], Veeronica [ FORSAKEN ], Andrew [ BAD THINGS ], 007n7 [ ANY FANDOM or TERMINATION PROTOCOL or FORSAKEN ], Azure [ FORSAKEN ]
+Sword [ PHIGHTING! ], Noob [ ANY FANDOM or FORSAKEN ], Veeronica [ FORSAKEN ], Andrew [ BAD THINGS ], 007n7 [ ANY FANDOM or TERMINATION PROTOCOL or FORSAKEN ], Azure [ FORSAKEN ], Dozer [ GRACE ], KooKoo [ GRACE ], Sorrow [ GRACE ],
+John Grace / Sinner [ GRACE ]
