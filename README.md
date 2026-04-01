@@ -26,11 +26,9 @@ FANDOMS !! ;;
 - BFDI
 - GRACE
 - AND MORE THAT I CAN LIST SOON !! [ i forgot hhh ]
-# || --- ★ --- ||
-!! THIS IS A FILLER !!
 # ! × - ⊹ - × !
 DNI LIST ;; proshippers, darkshippers, the basic stuff
 # ▶ ---- ✧ ---- 
 FAVOURITE CHARACTERS !! ;;
 Sword [ PHIGHTING! ], Noob [ ANY FANDOM or FORSAKEN ], Veeronica [ FORSAKEN ], Andrew [ BAD THINGS ], 007n7 [ ANY FANDOM or TERMINATION PROTOCOL or FORSAKEN ], Azure [ FORSAKEN ], Dozer [ GRACE ], KooKoo [ GRACE ], Sorrow [ GRACE ],
-John Grace / Sinner [ GRACE ] S.N.A.P [ GRACE ]
+John Grace / Sinner [ GRACE ] S.N.A.P [ GRACE ], Joey / Doombringer [ GRACE ]
