@@ -1,20 +1,16 @@
 # Hello-World
 `` READ ME !!
 
-@ My name is Kaitekina, or Kaite, or Char. I don't mind anyway. 
+@ my name is Kaitekina, or Kaite, or Char. I don't mind anyway. Call me whatever you want.
 
-@ On Pony Town and Discord!
+@ pronouns r he / him / any !
 
-@ You can int freely, i don't mind! ^_^
+@ on Pony Town and Discord!
+
+@ you can int freely, i don't mind! ^_^
 
 @ Mostly online 24/7, yeah. I'm a phone addict 💥
 
-@ Go follow my awesome husband! ^_^ @h4xx1ng
-
-@ PLEASE DON'T CALL ME KATIE. THEY REMIND ME OF MY EX FRIEND. please...
-
-# « ----- »
-~ EXTRA INFO: i listen to vocaloid, yh.. also a minor btw.
 # ^^ --0-- ^^
 FANDOMS !! ;; 
 - DIE OF DEATH
@@ -27,8 +23,7 @@ FANDOMS !! ;;
 - GRACE
 - AND MORE THAT I CAN LIST SOON !! [ i forgot hhh ]
 # ! × - ⊹ - × !
-DNI LIST ;; proshippers, darkshippers, the basic stuff
+DNI LIST // basic dni..
 # ▶ ---- ✧ ---- 
-FAVOURITE CHARACTERS !! ;;
-Sword [ PHIGHTING! ], Noob [ ANY FANDOM or FORSAKEN ], Veeronica [ FORSAKEN ], Andrew [ BAD THINGS ], 007n7 [ ANY FANDOM or TERMINATION PROTOCOL or FORSAKEN ], Azure [ FORSAKEN ], Dozer [ GRACE ], KooKoo [ GRACE ], Sorrow [ GRACE ],
-John Grace / Sinner [ GRACE ] S.N.A.P [ GRACE ], Joey / Doombringer [ GRACE ]
+------------ 
+FILLER because i need to update this readme dawg 🥹
