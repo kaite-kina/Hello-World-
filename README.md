@@ -5,7 +5,7 @@
 
 @ pronouns r he / him / any !
 
-@ on Pony Town and Discord!
+@ on Pony Town and Discord! tumblr too, hi blossom 👀
 
 @ you can int freely, i don't mind! ^_^
 
@@ -21,9 +21,13 @@ FANDOMS !! ;;
 - TERMINATION PROTOCOL 
 - BFDI
 - GRACE
-- AND MORE THAT I CAN LIST SOON !! [ i forgot hhh ]
+- UNTITLED TAG GAME
+- SEWH
+- AND MORE THAT I CAN'T LIST!! 
 # ! × - ⊹ - × !
 DNI LIST // basic dni..
 # ▶ ---- ✧ ---- 
 ------------ 
-FILLER because i need to update this readme dawg 🥹
+- ...MY SEXUALITIES!
+
+```pansexual, bisexual, demiromantic```
