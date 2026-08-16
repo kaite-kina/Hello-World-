@@ -30,4 +30,4 @@ DNI LIST // basic dni..
 ------------ 
 - ...MY SEXUALITIES!
 
-```pansexual, bisexual, demiromantic```
+```pansexual, bisexual, demiromantic, non-binary```
