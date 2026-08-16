@@ -30,4 +30,20 @@ DNI LIST // basic dni..
 ------------ 
 - ...MY SEXUALITIES!
 
-```pansexual, bisexual, demiromantic, non-binary```
+``pansexual, bisexual, demiromantic, non-binary``
+
+# ✿ ~ !!
+OCS !! ;; 
+> *Sarah Willwood*
+--------------
+> *Kaitekina* (SONA)
+--------------
+> *INVITATION, KICKER, JESTER, LOCKED, CLUMSY* (COMMANDLINGS/PERMLINGS/MAFIA OCS)
+--------------
+> *Banana Peel, Bloxy Cola, Body Swap* (PHIGHTING!)
+--------------
+> *Vacationist* (MAFIA OC)
+--------------
+
+# // — ???...
+more soon! 
